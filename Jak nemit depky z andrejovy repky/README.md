@@ -11,9 +11,13 @@
 [Kde koupit zvěřinu - další možnost](https://www.zlesanastul.cz)\
 [Bedýnky - podpora lokálních farmářů](https://www.svetbedynek.cz/)\
 [Suché jezy](https://suchejezy.cz/)\
+[Forget short showers - mé oblíbené pojednání o tom, že individuální šetrnost nestačí](https://orionmagazine.org/article/forget-shorter-showers/)
+
 [Program péče o krajinu - získejte si svou dotaci](https://www.mzp.cz/cz/program_pece_krajina_vyzva_unor)\
 [Hajao Myjazaki - enviromentalismus dětem](https://orionmagazine.org/article/the-worlds-of-hayao-miyazaki/)\
 [Živá voda Jiřího Malíka](https://ekolist.cz/cz/publicistika/nazory-a-komentare/jindrichn-duras-model-zdonov-zdanlive-maly-projekt-ale-vyznamny-pro-celou-republiku)\
 [Cyrkl - přeprodávání odpadu](https://www.cyrkl.com/en/)\
 [Myko - nahrazovat polystyren, dřevotřísku a jiné materály podhoubím](https://www.cyrkl.com/cs/podhoubi-udrzitelne-budoucnosti-houby-misto-polystyrenu)\
 [Vzkaz Václava Cílka](https://www.ceskatelevize.cz/porady/10160488386-vzkaz/210452801410008-vzkaz-vaclava-cilka/)\
+\
+[Můj oblíbený článek o vztahu člověka a krajiny](https://orionmagazine.org/article/dark-ecology/)
